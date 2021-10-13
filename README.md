@@ -6,7 +6,7 @@
 ## Best Growth Marketing Agencies
 
 ### Tuff Growth
-Tuff is a plug-in growth marketing team. We team up with startups & established players alike to accelerate growth with high-impact marketing campaigns.
+Tuff is a plug-in [growth marketing agency](https://tuffgrowth.com/growth-marketing-agency/). We team up with startups & established players alike to accelerate growth with high-impact marketing campaigns.
 - Website: [https://www.tuffgrowth.com](https://www.tuffgrowth.com)
 
 ### Ladder.io
