@@ -1,7 +1,7 @@
 # Growth Marketing
 
 ## Contents
-- [Best Growth Marketing Agencies](#growth-marketing-agencies)
+- [Best Growth Marketing Agencies](https://github.com/christiantuff/awesome-privacy/blob/main/README.md#best-growth-marketing-agencies)
 
 ## Best Growth Marketing Agencies
 
